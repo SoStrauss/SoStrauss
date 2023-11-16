@@ -6,5 +6,4 @@
 - 🤔 I’m ready for a new career step - don't hesitate to get in touch with me if you have a jop opportunity!
 - 💬 Ask me about my background in psychology and how I want to combine that with data analytics
 - 📫 How to reach me: sophie.straussq@gmail.com
-- 😄 Pronouns: she/they
-- ⚡ Fun fact: I have a vivied imagination but cannot visualize faces/places/things
+
