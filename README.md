@@ -6,4 +6,7 @@
 - 🤔 I’m ready for a new career step - don't hesitate to get in touch with me if you have a jop opportunity!
 - 💬 Ask me about my background in psychology and how I want to combine that with data analytics
 - 📫 How to reach me: sophie.straussq@gmail.com
+- Find me on LinkedIn: linkedin.com/in/sophie-strauß-data-analyst
+
+
 
