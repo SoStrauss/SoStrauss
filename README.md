@@ -9,4 +9,3 @@
 - Find me on [LinkedIn](www.linkedin.com/in/sophie-strauß-data-analyst)
 
 
-
